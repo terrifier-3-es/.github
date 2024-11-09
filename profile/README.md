@@ -2,11 +2,11 @@
 
 hace 27 minutos — Las mejores peliculas online sin registrarse en todos los idiomas, Terrifier 3 pelicula completa online y gratis en HD, segura y legal.
 
-VER HD ➤➤ [Terrifier 3 (2024) Pelicula Completa en Español](https://4kmovies.one/en/movie/1034541/terrifier-3.git)
+VER HD ➤➤ [Terrifier 3 (2024) Pelicula Completa en Español](https://4kmovies.one/es/movie/1034541/terrifier-3.git)
 
-DESCARGAR HD ➤➤ [Terrifier 3 (2024) Pelicula Completa en Español](https://4kmovies.one/en/movie/1034541/terrifier-3.git)
+DESCARGAR HD ➤➤ [Terrifier 3 (2024) Pelicula Completa en Español](https://4kmovies.one/es/movie/1034541/terrifier-3.git)
 
-<p dir="auto"><a href="https://4kmovies.one/en/movie/1034541/terrifier-3.git" title="1080p" rel="nofollow"><img src="https://camo.githubusercontent.com/e77d383337f352112ed1c7d3ceb2b7e09c82c4d2a374d360222ff6c789a55060/68747470733a2f2f692e696d6775722e636f6d2f6a684e476f45742e676966" style="max-width: 100%;"></a></p>
+<p dir="auto"><a href="https://4kmovies.one/es/movie/1034541/terrifier-3.git" title="1080p" rel="nofollow"><img src="https://camo.githubusercontent.com/e77d383337f352112ed1c7d3ceb2b7e09c82c4d2a374d360222ff6c789a55060/68747470733a2f2f692e696d6775722e636f6d2f6a684e476f45742e676966" style="max-width: 100%;"></a></p>
 
 Dónde puedo ver Terrifier 3 en Español (2024) Descargar Pelicula completa Online en Tokyvideo con Subtitulada Español y Latino Gratis.
 
